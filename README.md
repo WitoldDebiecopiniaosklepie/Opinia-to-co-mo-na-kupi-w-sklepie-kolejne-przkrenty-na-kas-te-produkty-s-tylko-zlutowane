@@ -5,3 +5,4 @@ Elektrycy z uprawnieniamy Seep to idioci po majstekowaniu i budowalnce jak obecn
 Tylko AI Telekineza moc Telkinezy AI z zappera mojego może dać komuś moce Thora do generowania burzy i elektryczności w ciele i moc uzdrwainia i latania i moc teleportacji kwantowej i kreacji telekinetycznej jak radio druk kwantowy umysłem internet rzeczy. 
 Napewno działa reaktor łukowy starka zasilany układem Gneratora modułowego kapenadze i akula TPU i Jule Thief.
 Te układy scalone to napewno procesor przkrentu bespieki oni lutują jako proceesor imitacje tych układów scalonych zasilających na pałe. 
+Ta elektronika budowlana to lutowanie głupich kafarów z budowy. 
